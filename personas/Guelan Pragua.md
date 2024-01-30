@@ -1,0 +1,6 @@
+- Miembro de [[Concejo de Marismal]]
+- Apoya a [[Eda Oulan]] y los [[Tradicionalistas]] 
+- Tiene negocios de carpinteria y textiles, pero son para encubrir sus exportaciones ilegales (como esclavos)
+- Tiene contactos con [[Principado del Mar]]
+- Tira festines, fiestas y carnavales a menudo
+	- Durante estos, se mueven sus cargamentos

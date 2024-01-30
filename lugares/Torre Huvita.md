@@ -1,0 +1,4 @@
+- Armeria de [[Marismal]]
+- [[Eliandro Nazego]] se la pasa aqui de guardia
+- Hay trabajos en un tablero en la base de la torre
+- Detras de [[Cueros Kester]]

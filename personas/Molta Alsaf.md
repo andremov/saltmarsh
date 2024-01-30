@@ -1,0 +1,3 @@
+- Esposa de [[Gorunn Alsaf]]
+- Madre de [[Torunn Alsaf]]
+- 

@@ -1,0 +1,4 @@
+- Tiefling
+- Está en busqueda de muchos pero muchos pescados para teletransportarlos al reino del demidios [[Iuz]]
+- Vende items magicos, siempre con una ligera maldicion
+- No está involucrado con ninguna facción de [[Marismal]]

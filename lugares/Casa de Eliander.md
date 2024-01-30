@@ -1,0 +1,3 @@
+- [[Eliandro Nazego]]
+- Llena de libros sobre la historia de [[Reino de Keoren]] y [[Marismal]]
+- 

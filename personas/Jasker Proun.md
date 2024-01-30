@@ -1,0 +1,5 @@
+- Herrero, dueño de [[Martillo de Jasker]]
+- Humano
+- No se lleva bien y desconfia de [[Brigada Alsaf]], ha oido rumores de amigos enanos
+- De acuerdo con [[Tradicionalistas]]
+- 

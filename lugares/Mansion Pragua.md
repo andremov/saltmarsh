@@ -1,0 +1,3 @@
+- Mansion de [[Guelan Pragua]]
+- Justo sobre el puerto
+- [[Guelan Pragua]] suele gritar y dar direcciones desde su ventana

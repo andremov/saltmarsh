@@ -1,0 +1,6 @@
+- Gobernado el [[Rey Kimberto Skotti]]
+- Solía tener un gran poder militar
+- Tras perder muchas batallas, guerras y territorio, el rey se rindió militarmente
+- El nuevo plan es impulsar el poder comercial del reino
+- Para esto, quiere agrander y mejorar [[Marismal]]
+- 

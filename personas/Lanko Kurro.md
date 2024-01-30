@@ -1,0 +1,3 @@
+- Ex soldado de [[Reino de Keoren]]
+- Dueño de [[La Cabra Ebria]]
+- 

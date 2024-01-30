@@ -1,0 +1,3 @@
+- Ex pirata
+- Trabaja con [[Guelan Pragua]] como informante de posibles compradores y vendedores en el negocio de contrabando
+- Se sabe casi todos los rumores de [[Marismal]]

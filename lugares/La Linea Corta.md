@@ -1,0 +1,6 @@
+- Taverna y posada popular
+- Muy grande, y llena de [[Leales]], recien llegados
+- Huele a pez
+- Al lado de [[Salon de Concejo]]
+- Negocio de [[Hanna Rist]]
+- 

@@ -1,0 +1,8 @@
+- Compuesto de mercaderes y pescadores del pueblo
+- En contra de la expansión de [[Marismal]], impuesta por [[Rey Kimberto Skotti]]
+- Los contrabandistas forman parte de este grupo
+- No consideran el contrabando algo necesariamente malo
+- Recuerdan que la corona no los ayudó
+- En contra de [[Brigada Alsaf]]
+- Liderados por [[Eda Oulan]], con apoyo de [[Guelan Pragua]]
+- Buscan que los enanos se vayan, la corona vuelva a sus conquistas, y la guardia se encargue mas de monstruos que de mercaderes

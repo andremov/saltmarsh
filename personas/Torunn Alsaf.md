@@ -1,0 +1,4 @@
+- Lidera [[Brigada Alsaf]] con su padre
+- Hijo de [[Gorunn Alsaf]] y [[Molta Alsaf]]
+- En un sueño le llegó la visión que al este de [[Marismal]], en el gran barranco, habían muchos metales preciosos
+- Falsificó un decreto real para poder realizar sus excavaciones

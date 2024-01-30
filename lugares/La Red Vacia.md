@@ -1,0 +1,4 @@
+- Frente a [[Torre Keledek]]
+- Taverna mas nueva pero en deplorable estado, sobre el agua y en constante movimiento por el mal estado de sus soportes
+- Suelen servir a maleantes
+- El dueño, [[Kreb Shenke]] recibe moneda de quien sea sin preguntar

@@ -1,0 +1,3 @@
+- Donde vive [[Anders Salmor]]
+- Muchas casas y viviendas de "trabajadores de la familia", que en realidad son asesinos y mercenarios de [[Hermandad de Halofitas]]
+- 

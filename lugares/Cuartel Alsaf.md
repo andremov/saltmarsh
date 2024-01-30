@@ -1,0 +1,5 @@
+- Al frente de [[Casa de Eliander]]
+- Casa abandonada que está siendo utilizada por [[Brigada Alsaf]] como cuartel general
+- Cuando no están en las minas o embriagandose, [[Gorunn Alsaf]] y [[Torunn Alsaf]] se encuentran aquí, sin embargo esto no suele ser el caso
+- Usualmente, hay enanos oficinistas manejando la caja y el registro de importaciones y exportaciones
+- En el sotano hay una boveda con mucho oro, protegido por varias trampas y armaduras magicas. La palabra magica es [[Molta Alsaf]]

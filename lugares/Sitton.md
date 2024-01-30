@@ -1,0 +1,3 @@
+- Capital de [[Reino de Keoren]]
+- Donde reside [[Rey Kimberto Skotti]]
+- 

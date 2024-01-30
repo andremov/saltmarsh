@@ -1,0 +1,6 @@
+- Miembro de [[Concejo de Marismal]]
+- Dueña de 3 barcos pesqueros
+- Sospecha de [[Brigada Alsaf]]
+- Quiere proteger a [[Marismal]] y su comunidad a toda costa
+- Sospecha de extranjeros, pero confía con facilidad
+- 

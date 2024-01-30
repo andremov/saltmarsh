@@ -1,0 +1,9 @@
+- Miembro de [[Concejo de Marismal]]
+- Lidera [[Hermandad de Halofitas]], con [[Skerrin Perola]]
+- Ultimo miembro de la familia noble Salmor, que solía gobernar [[Marismal]] antes que cayera en  las manos del [[Principado del Mar]]
+- El poder de su familia fue arrebatado por el [[Concejo de Marismal]] cuando se dignó que la familia no era apta para gobernar
+	- Se le cedió un asiento en el concejo por seguir la tradicion
+- Tiene toda una flota de barcos pesqueros
+- Los pescados de [[Marismal]] le caen bien y lo apoyan
+- Fuertemente en contra del [[Principado del Mar]], y los contrabandistas
+- 

@@ -1,0 +1,6 @@
+- Al frente de [[Barracas de Marismal]]
+- La taverna mas vieja de [[Marismal]]
+- Puesto favorito de los enanos y los guardas
+- Traen licor muy fuerte
+- [[Gorunn Alsaf]] y [[Torunn Alsaf]] tambien suelen venir, pero pocas veces juntos
+- 

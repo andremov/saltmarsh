@@ -1,0 +1,4 @@
+- Lidera [[Hermandad de Halofitas]], con [[Anders Salmor]]
+- En publico, es el mayordomo de [[Anders Salmor]]
+- En privado, es un asesino sin piedad y lidera los ataques de [[Hermandad de Halofitas]]
+- Muy muy en privado, tiene como intención volver a [[Anders Salmor]] incapaz de mandar y tomar el mando para si

@@ -1,0 +1,4 @@
+- Tiene un pequeño puerto donde descargan materiales y demás para la excavación
+- En teoría, ahí cargarían tambien minerales, pero no han encontrado mucho
+- [[Gorunn Alsaf]] se encarga de las cargas y el puerto
+- [[Torunn Alsaf]] se encarga de la mina

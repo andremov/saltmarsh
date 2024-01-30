@@ -1,0 +1,7 @@
+- Miembro de  [[Concejo de Marismal]]
+- Capitan de la guardia de [[Marismal]] 
+- Parte de [[Leales]]
+- Camina con pata de palo
+- Ayudó a pelear contra los males de [[Arboleda Briasom]]
+- Obedece fielmente a [[Rey Kimberto Skotti]]
+- Tiene escrituras reales que le permiten tomar el control de la guardia de [[Marismal]] en tiempos de crisis

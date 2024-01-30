@@ -1,0 +1,3 @@
+- Frente a [[La Red Vacia]]
+- Tres pisos
+- Adentro reside [[Xendros]]

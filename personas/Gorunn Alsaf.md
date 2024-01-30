@@ -1,0 +1,9 @@
+- Lidera [[Brigada Alsaf]] con su hijo
+- Miembro de [[Concejo de Marismal]]
+	- Por orden del decreto real que trajo a [[Brigada Alsaf]] a [[Marismal]]
+- Padre de [[Torunn Alsaf]]
+- Esposo de [[Molta Alsaf]]
+- Ve por los ojos de su hijo, confía plenamente en el
+- No tiene idea que el decreto del rey es falso
+- No tiene miedo de darse puño con alguien
+- 

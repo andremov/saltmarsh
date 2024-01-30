@@ -1,0 +1,1 @@
+La mansion embrujada está siendo usada por [[Principado del Mar]], y [[Anders Salmor]] busca ayuda de aventureros para averiguarlo.

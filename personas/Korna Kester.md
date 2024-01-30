@@ -1,0 +1,3 @@
+- Dueña de [[Cueros Kester]]
+- Muy interesada en cueros extravagantes
+- De acuerdo con [[Tradicionalistas]]

@@ -1,0 +1,3 @@
+- Dueña de [[La Linea Corta]]
+- Apoya a [[Tradicionalistas]], pero recibe a [[Leales]] en su posada
+- 
