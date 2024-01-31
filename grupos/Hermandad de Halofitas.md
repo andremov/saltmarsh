@@ -2,3 +2,4 @@
 - Utilizan tanto a [[Tradicionalistas]] como a [[Leales]] para librar [[Marismal]] del [[Principado del Mar]] con la intención de posicionar de nuevo a la familia Salmor en el poder
 - Buscan desestablizar el [[Concejo de Marismal]]
 	- Comenzando con [[Guelan Pragua]]
+- "Otro dia, otra cascada que subir"
