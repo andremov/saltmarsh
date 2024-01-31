@@ -6,3 +6,4 @@
 - En contra de [[Brigada Alsaf]]
 - Liderados por [[Eda Oulan]], con apoyo de [[Guelan Pragua]]
 - Buscan que los enanos se vayan, la corona vuelva a sus conquistas, y la guardia se encargue mas de monstruos que de mercaderes
+- "No hay nada como los peces de siempre"
